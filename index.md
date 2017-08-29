@@ -21,9 +21,7 @@ La mala: Mucha gente termina votando a alguno de los dos grandes protagonistas d
 
 Hicimos este sitio **para evitar que esto ocurra**. Porque así como vienen las cosas, en el 2019 se presentarán Cristina Kirchner y Mauricio Macri como candidatos presidenciales. Y tendremos nuevamente a uno de los dos.
 
-No somos de ningún partido poltico (podras pensar que somos de Massa o Stolbizer, pero no es así).
-
-Lo que queremos es simplemente mostrarte las alternativas que hay. En cada provincia, hasta en las más pequeñas. Porque toda la Argentina tiene voz y voto.
+No somos de ningún partido poltico (podrías pensar que somos de Massa o Stolbizer, pero no es así). Lo que queremos es simplemente **mostrarte las alternativas que hay**. En cada provincia, hasta en las más pequeñas. Porque **toda la Argentina cuenta** y tiene voz y voto.
 
 En los próximos días publicaremos una serie de **guías electorales**. Te presentamos a todas las fuerzas que pasaron las PASO de agosto.
 
