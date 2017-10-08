@@ -1,4 +1,6 @@
-Guía Electoral de la Provincia de Buenos Aires
+---
+title: Guía Electoral de la Provincia de Buenos Aires
+permalink: /buenos-aires-2017/
 ---
 
 **Ni Cristina Ni Macri - ¿a quién votar en Buenos Aires entonces?**
