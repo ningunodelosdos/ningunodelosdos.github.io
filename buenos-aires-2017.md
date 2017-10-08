@@ -1,4 +1,4 @@
-title: Guía Electoral de la Provincia de Buenos Aires
+Guía Electoral de la Provincia de Buenos Aires
 ---
 
 **Ni Cristina Ni Macri - ¿a quién votar en Buenos Aires entonces?**
@@ -10,8 +10,8 @@ Desgraciadamente, el electorado en las PASO de agosto de 2017 ha eliminado una g
 **Las fuerzas alternativas que se presentan en octubre**
 
 * **1País**: Alianza política de centro. Integrada principalmente por el *Frente Renovador*, un desprendimiento del peronismo liderado por Sergio Massa, y el *GEN*, partido de centro-izquierda liderado por Margarita Stolbizer.
-* **Alianza Frente Justicialista**: Agrupa a los sectores peronistas tradicionales, que no se adhirieron a la línea de Cristina Kirchner. La cara más conocida es el ex ministro de transporte Florencio Randazzo.
-* **Alianza Frente de Izquierda y de los Trabajadores**: Alianza de los tres partidos trotzkistas *Partido Obrero*, *Izquierda Socialista* y *Partido de los Trabajadores Socialistas*. Representan el ala *dura* de la izquierda argentina.
+* **Frente Justicialista**: Es un frente inscripto por el Partido Justicialista provincial. Agrupa a los sectores peronistas tradicionales, que no se adhirieron a la línea de Cristina Kirchner. La cara más conocida es el ex ministro de transporte Florencio Randazzo, candidato a senador, pero también se encuentran en esta alianza Mario Ishii.
+* **Frente de Izquierda y de los Trabajadores**: Alianza de los tres partidos *Partido Obrero*, *Izquierda Socialista* y *Partido de los Trabajadores Socialistas*. Representan el ala duro del trotzkismo, una corriente de izquierda que promueve un socialismo democrático con economía planificada y fábricas autogobernadas por los trabajadores.
 
 **Las fuerzas mayoritarias**
 
