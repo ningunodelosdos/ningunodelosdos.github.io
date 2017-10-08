@@ -9,13 +9,13 @@ Desgraciadamente, el electorado en las PASO de agosto de 2017 ha eliminado una g
 
 **Las fuerzas alternativas que se presentan en octubre**
 
-* **1País**: Alianza política de centro. Integrada principalmente por el Frente Renovador, un desprendimiento del peronismo liderado por Sergio Massa, y el GEN, partido de centro-izquierda liderado por Margarita Stolbizer.
-* **Alianza Frente Justicialista**: Agrupa a los sectores peronistas tradicionales, que no
-* **Alianza Frente de Izquierda y de los Trabajadores**:
+* **1País**: Alianza política de centro. Integrada principalmente por el *Frente Renovador*, un desprendimiento del peronismo liderado por Sergio Massa, y el *GEN*, partido de centro-izquierda liderado por Margarita Stolbizer.
+* **Alianza Frente Justicialista**: Agrupa a los sectores peronistas tradicionales, que no se adhirieron a la línea de Cristina Kirchner. La cara más conocida es el ex ministro de transporte Florencio Randazzo.
+* **Alianza Frente de Izquierda y de los Trabajadores**: Alianza de los tres partidos trotzkistas *Partido Obrero*, *Izquierda Socialista* y *Partido de los Trabajadores Socialistas*. Representan el ala *dura* de la izquierda argentina.
 
 **Las fuerzas mayoritarias**
 
-**Unidad Ciudadana** es la alianza política integrado por el kirchnerismo y liderada por Cristina Kirchner, mientras que **Cambiemos Buenos Aires** es el lema bajo el cual se presenta el macrismo.
+**Unidad Ciudadana** es la fuerza política integrado por el kirchnerismo y liderada por Cristina Kirchner, mientras que **Cambiemos Buenos Aires** es el lema bajo el cual se presenta el macrismo (alianza entre el liberal-conservador *PRO*, la centrista *UCR* y *CC-ARI*).
 
 **Quedaron eliminados en las PASO:** 
 
