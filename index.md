@@ -23,6 +23,8 @@ Hicimos este sitio **para evitar que ésto ocurra**. Porque así como vienen las
 
 No somos de ningún partido poltico (podrías pensar que somos de Massa, Stolbizer o Randazzo, pero no es así). Lo que queremos es simplemente **mostrarte las alternativas que hay**. En cada provincia, hasta en las más pequeñas. Porque **toda la Argentina cuenta** y tiene voz y voto.
 
-En los próximos días publicaremos una serie de **guías electorales**. Te presentamos a todas las fuerzas que pasaron las PASO de agosto.
+En los próximos días publicaremos una serie de **guías electorales**. Te presentamos a todas las fuerzas que pasaron las PASO de agosto. Estas guías ya han sido cargadas:
+
+**8 de octubre:** [Provincia de Buenos Aires](/buenos-aires-2017/), [Provincia de Córdoba](/cordoba-2017/), [Provincia de Santa Fe](/santa-fe-2017/), [Ciudad de Buenos Aires](/caba-capital-2017/)
 
 **¡La elección es tuya! ¡Usá tu poder!**
