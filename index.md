@@ -1,16 +1,10 @@
-**"¡No me gusta Macri, pero Cristina tampoco!"**
-
-**"No quiero que vuelvan los K. ¡Pero Macri es un desastre!"**
-
-**"Me gustó la política inclusiva de Cristina. ¡Pero ella es una corrupta!"**
-
-**"Me encanta el liberalismo. ¡Pero Macri no tiene nada que ver!"**
-
-**"Los dos son corruptos. Solo hace falta mencionar a Lázaro y Panamá."**
-
+**"¡No me gusta Macri, pero Cristina tampoco!"**\
+**"Quiero que el país cambie. Pero no como lo hacen Macri y 'Cambiemos'."**\
+**"No quiero que vuelvan los K. ¡Pero Macri es un desastre!"**\
+**"Me gustó la política inclusiva de Cristina. ¡Pero no la corrupción!"**\
+**"Me encanta el liberalismo. ¡Pero Macri no tiene nada que ver!"**\
+**"Ninguno de los dos se salva. Solo hace falta mencionar a Lázaro y Panamá."**\
 **"Macri vendió Arsat y arruinó a la industria. ¿Pero que vuelva Cristina? ¡Jamás!"**
-
-**"Quiero que el país cambie. Pero no como lo hace Macri y 'Cambiemos'."**
 
 
 ¿Te sentís identificada o identificado con una de estas frases? ¿Y no tenés la menor idea **a quién votar en octubre**?
