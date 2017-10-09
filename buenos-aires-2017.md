@@ -15,7 +15,7 @@ Desgraciadamente, el electorado en las PASO de agosto de 2017 ha eliminado una g
 * **Frente Justicialista**: Es un frente inscripto por el Partido Justicialista provincial. Agrupa a los sectores peronistas tradicionales, que no se adhirieron a la línea de Cristina Kirchner. La cara más conocida es el ex ministro de transporte Florencio Randazzo, candidato a senador, pero también se encuentran en esta alianza Mario Ishii. ([Sitio web](http://www.frentejusticialista.com.ar/))
 * **Frente de Izquierda y de los Trabajadores**: Alianza de los tres partidos *Partido Obrero*, *Izquierda Socialista* y *Partido de los Trabajadores Socialistas*. Representan el ala duro del trotzkismo, una corriente de izquierda que promueve un socialismo democrático con economía planificada y fábricas autogobernadas por los trabajadores. ([Perfil en Facebook](https://www.facebook.com/FrentedeIzquierda.FIT/))
 
-## Las fuerzas mayoritarias
+## Las fuerzas mayoritarias nacionales
 
 **Unidad Ciudadana** es la fuerza política provincial integrada por el kirchnerismo y liderada por Cristina Kirchner, mientras que **Cambiemos Buenos Aires** es el lema bajo el cual se presenta el macrismo (alianza entre el liberal-conservador *PRO*, la centrista *UCR* y *CC-ARI*).
 
