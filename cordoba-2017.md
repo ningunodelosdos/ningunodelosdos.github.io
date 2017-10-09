@@ -17,7 +17,7 @@ En Córdoba los electores han posibilitado a una mayoría de las fuerzas a pasar
 * **Izquierda al Frente por el Socialismo**: Esta alianza de izquierda une a los partidos MST y Nuevo MAS. De origen trotzkista y con propuestas políticas similares al FIT, estos partidos tienen una postura más dialoguista que la izquierda "dura". Su líder regional y candidata Luciana Echeverría sostiene que la izquierda debe "dejar de ser una fuerza testimonial". ([Perfil en Facebook](https://www.facebook.com/Izquierda-Al-Frente-Por-El-Socialismo-237234770040681/))
 * **Primero la Gente**: Es un partido conservador regional liderado por Carmen Álvarez Rivero. Coopera en parte con Encuentro Vecinal y se encuentra cercano a la coalición oficialista Cambiemos, aunque no la integra.([Sitio web](http://primerolagente.blogspot.com.ar/))
 
-## Las fuerzas mayoritarias
+## Las fuerzas mayoritarias nacionales
 
 **Frente Córdoba Ciudadana** es la fuerza política integrada por el kirchnerismo (que en Córdoba es bastante más débil que en gran parte del resto del país), mientras que el oficialismo nacional se presenta bajo su lema tradicional **Cambiemos** (alianza entre el liberal-conservador *PRO*, la centrista *UCR* y *CC-ARI*).
 
